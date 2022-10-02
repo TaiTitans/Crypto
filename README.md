@@ -1,4 +1,4 @@
-# ![https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2F403987029081487190%2F&psig=AOvVaw2HErKfDIWG9JETFQJEo4Wx&ust=1664776600556000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCKiQ0KLuwPoCFQAAAAAdAAAAABAJ](https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2F403987029081487190%2F&psig=AOvVaw2HErKfDIWG9JETFQJEo4Wx&ust=1664776600556000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCKiQ0KLuwPoCFQAAAAAdAAAAABAJ) Crypto Currency
+# ![CryptoCurrency](https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2F403987029081487190%2F&psig=AOvVaw2HErKfDIWG9JETFQJEo4Wx&ust=1664776600556000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCKiQ0KLuwPoCFQAAAAAdAAAAABAJ) Crypto Currency
 
 ## 🌀Xin chào các bạn,mình tên là Tài Titans đây là một Series tài liệu về Crypto của mình🌀
 
