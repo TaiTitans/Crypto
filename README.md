@@ -14,4 +14,4 @@ Như các bạn đã thấy, toàn bộ tài liệu ở đây được theo giá
 > 3. Comming Soon.
 
 ### 💻 Lập trình Blockchain nói chung và lập trình Web 3.0 nói riêng:
-> 1. Lập trình Sodility: Comming Soon.
+> 1. [Lập trình Solana](https://solanacookbook.com/vi/#%C4%91ong-gop)
